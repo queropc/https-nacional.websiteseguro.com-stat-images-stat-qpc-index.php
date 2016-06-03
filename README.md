@@ -1,0 +1,1 @@
+# https-nacional.websiteseguro.com-stat-images-stat-qpc-index.php
